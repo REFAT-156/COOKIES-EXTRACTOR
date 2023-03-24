@@ -7,5 +7,5 @@
 </p>
 <p align="center">
 
-## Link Download Termux 🤍
+## DOWNLOAD COOKIES EXTRACTOR APK 🤍
 👉🏻 [Click Here](https://apkfab.com/rs-cookies-🍪/com.cookies.extractor/apk?h=422aae316ddb134df6ee43ee0f8afe1b4f1cbd7bdfd8b2c325a4e29e92837ab6) 👈🏻
